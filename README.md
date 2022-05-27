@@ -27,9 +27,9 @@ Batata palha a gosto
 
 ## Modo de preparo:
 
-Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
+Em uma tigela grande misture o frango, o alho, a maionese, o sal e a pimenta.
 Em uma frigideira grande, derreta a manteiga e doure a cebola.
-Junte o frango temperado até que esteja dourado.
-Adicione os cogumelos, o ketchup e a mostarda.
+Coloque o frango temperado na frigideira onde esta a cebola e refogue até que o frango esteja cozido e dourado (pode ir colocando água aos poucos para auxiliar no cozimento).
+Adicione os cogumelos, o ketchup e a mostarda depois que caldo estiver bem reduzido.
 Incorpore o creme de leite e retire do fogo antes de ferver.
 Sirva com arroz branco e batata palha.
